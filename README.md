@@ -1,1 +1,0 @@
-# Chatora-privacy-policy
